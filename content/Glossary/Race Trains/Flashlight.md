@@ -1,0 +1,1 @@
+A heavily modified *Daylight*-class locomotive, the Flashlight is registered to the Portland Western Republic. 
