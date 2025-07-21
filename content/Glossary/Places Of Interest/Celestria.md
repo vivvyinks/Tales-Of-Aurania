@@ -1,0 +1,1 @@
+A magical realm, set on the shores and interior of the Greater Crystal Forest. This nation is mainly comprised of mages and runesmiths, and is known for its trade in magical tools, weaponry, and most importantly, [[Infernite|infernite]], a powerful alternative to coal. 

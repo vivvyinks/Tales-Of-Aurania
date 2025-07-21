@@ -1,0 +1,1 @@
+A modern verging on futuristic empire of techsmiths. Unlike the time-displaced nation of [[Elpis Renatus]], the Paragon Empire trends more towards known and modern tech.
