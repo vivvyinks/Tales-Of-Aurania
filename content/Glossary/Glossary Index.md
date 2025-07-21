@@ -2,6 +2,9 @@
 [[Centralia]]
 [[Celestria]]
 [[The Feldspar Commonwealth]]
+[[Elpis Renatus]]
+[[Paragon Empire]]
+
 
 ## Race Trains
 [[Brilliant Eclipse]]
