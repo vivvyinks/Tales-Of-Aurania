@@ -1,0 +1,3 @@
+A fiery goddess, and one who stokes the firebox of the Divine Machines. Without her, Aurania would go cold and dormant. She is the blazing sunrise, the glow of the moon, and the light of all reality. She ensures locomotives continue to haul the people of Aurania across its land, bringing trade, tales, and tourism to all parts of the globe.
+
+Patron saint of locomotives, protector of train drivers, and divine incarnation of travel. It is customary to sanctify a new locomotive by throwing an offering to Ember into its firebox, so that it may be blessed with steady, consistent heat and safe journeys. 

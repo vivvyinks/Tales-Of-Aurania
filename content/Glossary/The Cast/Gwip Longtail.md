@@ -1,1 +1,0 @@
-A member of the crew of the [[Mirage]]. A brilliant engineer, this beastfolk raccoon is able to pull a solution to almost any problem out of seemingly nowhere. A bit... unstable... given his proclivity for making overdone solutions for the simplest of problems, but the Mirage would be up a creek without a paddle were it not for Gwip.

@@ -1,0 +1,1 @@
+An island nation comprised of one large mainland and many smaller islands linked via rail bridge, the Republic of Checkered Isle is an older nation with beautiful architecture. Focusing mainly on stoneworks and rail industry, they're responsible for many of the great rail viaducts of Aurania.

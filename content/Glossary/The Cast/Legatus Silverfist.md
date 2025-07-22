@@ -1,1 +1,0 @@
-The Earl of Shirewood, a small principality tucked away underneath the forest nation of the Woodland Raccoon Federation. A dastardly man and hoarder of the rare and valuable Divine Machinery. 
