@@ -8,3 +8,4 @@
 ### Mortals
 [[Gwip Longtail]]
 [[Legatus Silverfist]]
+[[Shale (Astrae) Highwind]]
