@@ -20,7 +20,7 @@ Shale grunted and made his way out of the crowd, towards Martensite Street. Anot
 A few minutes later, he was at the Fool's Tankard, the cheapest, rowdiest, and arguably still safest tavern in the Brewer's Quarter of Middle Centralia.
 
 "The usual, please, Marken." Slate sat down heavily on one of the barstools.
-"The usual it is." Marken Twyst, the proprietor and bartender of the Fool's Tankard, pulled a mug of what he called 'engine grease': a thick, foamy, dark ale that had a kick like getting flattened like a streetcar. It was also the cheapest drink on his menu.
+"The usual it is." Marken Twyst, the proprietor and bartender of the Fool's Tankard, pulled a mug of what he called 'engine grease': a thick, foamy, dark ale that had a kick like getting flattened by a streetcar. It was also the cheapest drink on his menu.
 
 Shale took the proffered mug and downed half of it in one gulp, letting out a satisfied huff. "Yeah, good as always."
 
