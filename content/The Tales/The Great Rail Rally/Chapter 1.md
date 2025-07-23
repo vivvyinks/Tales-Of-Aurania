@@ -25,8 +25,11 @@ A few minutes later, he was at the Fool's Tankard, the cheapest, rowdiest, and a
 Shale took the proffered mug and downed half of it in one gulp, letting out a satisfied huff. "Yeah, good as always."
 
 "You're still drinking that shit, Shale?" Shale jumped, turning his head to see the familiar face of Gwip Longtail. "Gwip! You fur-eared wad of metal shavings- you startled me!"
+
 "You look in a sorry mood. What's thrown a wrench into your gearbox?" Gwip tapped the bartop as he sat, signaling for a drink. 
+
 "Oh, you know. Still drifting. Means I'll be watching the Rally on crystalscreen again. Would be nice to watch up close, participate in the festivities... maybe even play the game." He groaned. "That’s a very distant dream, though. No crew, no locomotive, no equipment, no sponsors..." Shale took another swig of his drink.
+
 A sudden, wide grin crawled onto Gwip's face. "I dunno about the other things, but if you need a locomotive..."
 
 Shale blinked, equal parts anxiety and exhilaration visible on his face.
