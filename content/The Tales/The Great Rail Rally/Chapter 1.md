@@ -13,7 +13,7 @@ Shale frowned as the baker left, but dug the requisite change out of his pocket,
 
 When he arrived, the Herald with the scroll had begun speaking. He leaned against a nearby tree, listening.
 
-"...is pleased to announce the location of the stadium for the Great Rail Rally this year, taking place in one month and one week." A brief pause. "Congratulations to the Feldspar Commonwealth, host of this year's Rally. Expect visitation later today, Feldspar time. And to all nations participating this year, please make your teams ready at Feldspar Stadium one week from now."
+"...is pleased to announce the location of the stadium for the Great Rail Rally this year, taking place in one month and one week." A brief pause. "Congratulations to the Feldspar Commonwealth, host of this year's Rally. Expect visitation later today, Feldspar time. And to all nations participating this year, please make your teams ready for inspection and approval at Feldspar Stadium one week from now."
 
 Shale grunted and made his way out of the crowd, towards Martensite Street. Another Rally he'd have to watch on the crystalscreens. No way he could swing a job that'd put him in Feldspar on that kind of notice. Even with a week and a month of advance time, railguard jobs were long, often two-way, and usually thankless. "I need a drink."
 
