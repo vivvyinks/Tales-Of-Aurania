@@ -1,0 +1,1 @@
+A massive, abandoned switching yard, where rolling stock and locomotives go to die. Originally a WRF freightyard, this once-venerable area has fallen into disrepair and disuse with the introduction of faster trains and mage-based cargo shunting.

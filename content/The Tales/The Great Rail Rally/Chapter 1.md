@@ -1,5 +1,3 @@
-## Announcement Day
-
 It was a soggy Summer day when the Heralds came to Centralia.
 
 Driven by the will of the Goddess, the rain suddenly stopped, and a shaft of brilliant lavender light opened on Alphmoor Park. When it closed, a trio of Heralds, one holding a scroll, two holding the banner with crossed pen and sword against a 20-sided die that was Her insignia, were standing there, practically glowing with divine light.
@@ -35,4 +33,5 @@ A sudden, wide grin crawled onto Gwip's face. "I dunno about the other things, b
 Shale blinked, equal parts anxiety and exhilaration visible on his face.
 
 It was gonna be a long day.
+
 [[Chapter 2|->]]

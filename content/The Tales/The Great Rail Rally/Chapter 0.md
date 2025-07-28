@@ -8,4 +8,4 @@ The winners would receive fame and fortune, blessings from the Goddess, and woul
 
 And so it began.
 
-[[Chapter 1|-->]]
+[[Chapter 1|->]]
