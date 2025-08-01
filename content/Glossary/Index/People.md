@@ -9,3 +9,4 @@
 [[Gwip Longtail]]
 [[Legatus Silverfist]]
 [[Shale (Astrae) Highwind]]
+[[Elarra Masters]]

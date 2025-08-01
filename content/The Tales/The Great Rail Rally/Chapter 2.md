@@ -42,4 +42,4 @@ Shale leapt off and onto the concrete floor as the *Mirage* came to a halt. "Gos
 
 "Not without the rest of our crew, we don't- but alright, alright." Shale grinned. Things had, somehow, impossibly, managed to turn around. 
 
-->
+[[Chapter 3|->]]

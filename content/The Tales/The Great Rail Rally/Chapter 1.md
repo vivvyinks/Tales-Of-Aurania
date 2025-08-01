@@ -24,7 +24,7 @@ Shale took the proffered mug and downed half of it in one gulp, letting out a sa
 
 "You're still drinking that shit, Shale?" Shale jumped, turning his head to see the familiar face of Gwip Longtail. "Gwip! You fur-eared wad of metal shavings- you startled me!"
 
-"You look in a sorry mood. What's thrown a wrench into your gearbox?" Gwip tapped the bartop as he sat, signaling for a drink. 
+"You look in a sorry mood. What's thrown a wrench into your gearbox?" Gwip tapped the bartop as he sat, signaling for a drink, which was quickly slid across into his waiting paw. He took a deep swig.
 
 "Oh, you know. Still drifting. Means I'll be watching the Rally on crystalscreen again. Would be nice to watch up close, participate in the festivities... maybe even play the game." He groaned. "That’s a very distant dream, though. No crew, no locomotive, no equipment, no sponsors..." Shale took another swig of his drink.
 

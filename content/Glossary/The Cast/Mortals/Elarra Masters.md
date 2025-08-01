@@ -1,0 +1,3 @@
+One of the guards for the [[Mirage]]. Otherwise known as "Snowstorm" to her peers, this arctic foxfolk woman is one of the surest shots in Aurania. She's at her finest with a bow, but if it shoots a projectile, chances are, she can use it. 
+
+She's quite sensitive to loud noises, requiring earmuffs while riding on the train. This puts her at a disadvantage, as shouted orders are easily missed, but the team works around it. 

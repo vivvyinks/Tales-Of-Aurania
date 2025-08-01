@@ -1,3 +1,3 @@
-The Earl of Shirewood, a small principality tucked away underneath the forest nation of the Woodland Raccoon Federation. A dastardly man and hoarder of the rare and valuable Divine Machinery. 
+The Earl of [[Shirewood]], a small principality tucked away underneath the forest nation of the Woodland Raccoon Federation. A dastardly man and hoarder of the rare and valuable Divine Machinery. 
 
-He plans to use the race this year (the 139th Year of the Age of Steam & Mana) as cover for his most evil scheme: to utilize a weapon constructed of Divine Machinery to overthrow the New Pantheon of Aurania and reinstate rule by the eldritch being Entropy.
+He plans to use the race this year (the 149th Year of the Age of Steam & Mana) as cover for his most evil scheme: to utilize a weapon constructed of Divine Machinery to overthrow the New Pantheon of Aurania and reinstate rule by the eldritch being Entropy.

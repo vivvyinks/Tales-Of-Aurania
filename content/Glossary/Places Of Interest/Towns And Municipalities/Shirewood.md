@@ -1,0 +1,1 @@
+A tiny town set in the Greater Sylvan Forest west of Centralia, Shirewood is a trading post, logging town, and most importantly, the home of [[Legatus Silverfist]]. It has a rowdy and rough enforcer crew, known as, unsurprisingly for Legatus's ego, the Silver Fists, who keep the peace and sometimes run errands for the dastardly Earl.
