@@ -48,4 +48,36 @@ A snow-white foxfolk woman was standing on the street next to them, leaning on a
 
 "A team for the- *really*?" She leaned in, tail wagging. "Well, you've got only two people." She seemed... hopeful?
 
-"Uh- yup. We need our guards, and our driver."
+"Uh- yup. We need our guards, and our driver. We've got a loco, but... she needs repairs."
+
+"Well... I can shoot pretty good." The foxfolk woman leaned back, smirking. "Best shot in Steamhaven... maybe in the whole Federation."
+
+"You can't just be accurate. You gotta be strong, and you gotta be fast." Shale crossed his arms. "We're talking *rally* guard, not just a regular railguard job. We're not going up against pirates, we're going against other teams. All of which will be- Ack!"
+
+Shale was cut off by the foxfolk woman, quick as a wink, scooping him up and pinning him to the wall with one hand, his feet dangling off the floor. She smirked, even as Gwip's comparatively glacial reaction time had him only now pulling out his thundercaster. "Fast enough for ya, swordsman?"
+
+"Uh- yup- m-more than fast enough- ow-" Shale groaned: his shoulder was starting to feel the squeeze. "Lemme down, will ya?"
+
+He was unceremoniously dropped, landing lightly on his feet. He rubbed his shoulder a bit, then looked to Gwip, who hesitated, then nodded. "Alright, you're in."
+
+"YESS!" The foxfolk woman pumped her fist, before holding her hand out formally. "Elarra Masters. My friends call me Snowstorm."
+
+Shale took it, giving it a firm shake. "Welcome to the crew of the Mirage, Elarra."
+
+Gwip coughed loudly. "Alright, that's enough formalities. We gotta catch a train to Shirewood."
+
+"Shirewood? Why Shirewood?" Shale was confused.
+
+Elarra, however, was less than pleased. Her ears flattened, and her lips peeled away from her teeth. "Oh, you guys are *desperate*, aren't you?"
+
+"The bad kind of desperate, yes." Gwip held his hands up apologetically. "Cuz, ya know. Repairing a race locomotive isn't cheap. So... we're gonna cut a deal with a man I would very much like to introduce to Sparky... but will restrain myself from doing."
+
+"Get in line. I'd sooner put an arrow through that *hideous* creature's skull than entertain anything he might have to say."
+
+Gwip sighed. "Again, you and me both. Feeling's mutual. But we're short on cash, time, and connections. This the only option we have."
+
+"Guys, wait, hang on! I'm missing some important context here." Shale cut in, a bit miffed. "Who in the Void is this person you're ragging on?"
+
+Elarra turned to look at Shale, pursing her lips. "The Earl of Shirewood? You mean you haven't heard of Legatus Silverfist?"
+
+->
